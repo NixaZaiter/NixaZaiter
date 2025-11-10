@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/NixaZaiter](https://github.com/NixaZaiter)
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/ian-johnson-1157107b/](https://www.linkedin.com/in/ian-johnson-1157107b/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/ian-mathew-johnson/](https://www.linkedin.com/in/ian-mathew-johnson/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
